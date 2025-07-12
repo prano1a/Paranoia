@@ -1,7 +1,7 @@
 # Paranoia
 well.. About me??
 
-Paranoia, Noah/Noah, Ellie any pronouns <<3
+Paranoia, Noah/Noa, Ellie any pronouns <<3
 A 16-year-old child 
 Pansexual, please don't be homophobic. I'm crying already..
 ISFP, a complex child, an introvert. 

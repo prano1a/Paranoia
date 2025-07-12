@@ -3,7 +3,7 @@ well.. About me??
 
 Paranoia, Noah/Noah, Ellie any pronouns <<3
 A 16-year-old child 
-Pansexual, Non-binar, please don't be homophobic. I'm crying already..
+Pansexual, please don't be homophobic. I'm crying already..
 ISFP, a complex child, an introvert. 
 
 I love role-playing games, especially my favorite peyring, for example chance /Elliot. okay?
